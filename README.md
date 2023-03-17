@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Aakashraj04
-- 👀 I’m interested in hacking
+- 👀 I’m interested in nothing.
 - 🌱 I’m currently learning cyber security
-- 💞️ I’m looking to collaborate on...
+- 💞️ I’m looking to collaborate on Google.
 - 📫 Reach me on instagram (ID : _axe.___)
 
 <!---
