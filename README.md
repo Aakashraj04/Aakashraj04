@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Aakashraj04
 - 👀 I’m interested in nothing.
 - 🌱 I’m currently learning cyber security
-- 💞️ I’m looking to collaborate on Google.
 - 📫 Reach me on aakashmng2004@gmail.com
 
 <!---
