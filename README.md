@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Aakashraj04
-- 👀 I’m interested in nothing.
+- 👀 I’m interested in Ethical Hacking.
 - 🌱 I’m currently learning cyber security
 - 📫 Reach me on aakashmng2004@gmail.com
 
